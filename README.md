@@ -1,1 +1,1 @@
-Fsoci3ty tb3o lmojrim dima kaytlagawh wlkn 3mrhom chedooh  ,wlkn kairos kaymoooot 3la snap kola merra kayl9awh kayl9a raso rah snapa fach tlagina b sus , tjm3at data wakha dart bihom denya  o l9ina ga3 les position fach tlagina dak sus 9edyyyy gharad o chedoooooooooooooooo
+Fsoci3ty tb3o lmojrim dima kaytlagawh wlkn 3mrhom chedooh  ,wlkn kairos kaymoooot 3la snap kola merra kayl9awh kayl9a raso rah snapa fach tlagina b sus , tjm3at data wakha dart bihom denya 30 merra  o l9ina ga3 les position fach tlagina dak sus 9edyyyy gharad o chedoooooooooooooooo
